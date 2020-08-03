@@ -1,6 +1,6 @@
 # 潮浪视频 最新地址发布
 
-## 导 航 永 久 域 名 ：[https://chaolang.tv/](https://chaolang.tv/)
+## 导 航 永 久 域 名 ：[https://chaolang.pub/](https://chaolang.pub/)
 
 ## ⭐️ 👉 最新地址 ：[https://xav01.com](https://xav01.com)
 
@@ -11,6 +11,6 @@
 
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 
-### 谨记永久发布页哦！[https://chaolang.tv/](https://chaolang.tv/)
+### 谨记永久发布页哦！[https://chaolang.pub/](https://chaolang.pub/)
 
-### 谨记备用发布页哦！[https://chaolang.pub/](https://chaolang.pub/)
+### 谨记备用发布页哦！[https://chaolang.tv/](https://chaolang.tv/)
